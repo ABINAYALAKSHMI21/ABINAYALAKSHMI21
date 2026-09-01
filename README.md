@@ -1,4 +1,4 @@
-# Hi, I'm Abinaya 👋
+# Hi, I'm Abinayalakshmi 👋
 
 🎓 **MSc Business Statistics Student at VIT**
 📊 **Aspiring Data Analyst | Business Analyst | Product Analyst**
